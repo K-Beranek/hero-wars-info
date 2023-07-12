@@ -2,6 +2,10 @@
 
 Wiki article: https://hero-wars.fandom.com/wiki/Guild/Guild_War
 
+Detailed instructions for the Knights guild are [here](guild_wars_instructions.md)
+
+----
+
 - Each guild has limit on number of members at 30.
 - Everyone can setup two teams for Guild Wars. One of heroes, second of titans.
   - Click Guild > Guild War, then setup your defending teams.
