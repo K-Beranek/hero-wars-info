@@ -9,6 +9,7 @@
 - Solfors, maps for adventures and list of game gifts: https://www.smartones.solfors.com/#
 - Hero Wars community pages, news, some gifts etc.: https://community.hero-wars.com/feed/community
 - Hero Wars wiki, detailed information about everything: https://hero-wars.fandom.com/
+- Offical Hero Wars library: https://www.hw-library.com/
 
 ----
 
@@ -19,3 +20,5 @@
 # Asgard
 - [How I choose Asgard buffs](asgard_buffs.md)
 
+# Official Gifts
+- [Official gifts provided by Hero Wars](gifts.md)
