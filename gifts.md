@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-07-25`
+  - And don't forget to visit our website to get 500 Honey! https://community.hero-wars.com/post/2312
+  - Summer Festival is on full swing, and we've got a special present for you! Visit our site to get 250 honey! https://community.hero-wars.com/post/2313
 
 `2023-07-24`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2297
