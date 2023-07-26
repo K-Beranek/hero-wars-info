@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-07-26`
+  - Summer Festival is on full swing, and we've got a special present for you! Visit our site to get 250 honey! https://community.hero-wars.com/post/2314
+
 `2023-07-25`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2298
   - Visit the website to get 300,000 Gold, 10 Summoning Spheres, and 10 Artifact Chest Keys! https://community.hero-wars.com/post/2318
