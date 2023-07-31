@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-07-31`
+  - Visit our site to get 250 honey! https://community.hero-wars.com/post/2322
+
 `2023-07-30`
   - Visit our website to get 1 Summer Festival Coin and 250 Honey! https://community.hero-wars.com/post/2321
   - Visit the website to get 3 Free Boxes and 5 Titan Artifact Spheres! https://community.hero-wars.com/post/2303
