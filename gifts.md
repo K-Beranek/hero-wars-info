@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-08-01`
+  - And don't forget to get 500 Energy on the website: https://community.hero-wars.com/post/2328
+
 `2023-07-31`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2304
   - Visit our site to get 250 honey! https://community.hero-wars.com/post/2322
