@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-08-02`
+  - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2306
+
 `2023-08-01`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2305
   - Go to our website to get 3 Portal Charges, and 5 Large Skin Stone Chests! https://www.hero-wars.com/?nx_source=group_posting&gift_id=b031b6EoiW
