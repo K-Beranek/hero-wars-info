@@ -1,4 +1,8 @@
 # Official gifts - newest on top
+`2023-08-03`
+  - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2307
+  - Visit our website to get 10 Gifts from Boxy, 10 Pet Summoning Eggs, 300 Chaos Particles, and a special avatar with Sparky! https://community.hero-wars.com/post/2334
+
 `2023-08-02`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2306
 
