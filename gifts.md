@@ -1,5 +1,6 @@
 # Official gifts - newest on top
 `2023-08-04`
+  - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2308
   - And don't forget to claim 500 Energy on the website: https://community.hero-wars.com/post/2336
 
 `2023-08-03`
