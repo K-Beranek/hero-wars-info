@@ -1,4 +1,8 @@
 # Official gifts - newest on top
+`2023-08-10`
+  - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2343
+  - Lots of rewards: https://www.hero-wars.com/?nx_source=group_posting&gift_id=P0jdn7tDAo
+
 `2023-08-09`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2342
 
