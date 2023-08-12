@@ -1,4 +1,7 @@
 # Official gifts - newest on top
+`2023-08-12`
+  - Visit the website to get 3 Free Boxes and 5 Titan Artifact Spheres! https://community.hero-wars.com/post/2350
+
 `2023-08-11`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2344
   - And don't forget to claim 500 Energy on the website: https://community.hero-wars.com/post/2358
