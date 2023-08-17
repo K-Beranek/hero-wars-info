@@ -1,4 +1,9 @@
 # Official gifts - newest on top
+Vacations - no updates will be published between August 18th and August 25th, inclusive
+
+`2023-08-17`
+  - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2348
+
 `2023-08-16`
   - Visit the website to get 3 Free Boxes! https://community.hero-wars.com/post/2347
 
